@@ -1,4 +1,4 @@
-# Sean Kross
+# Sean Kross AND Navid Shayanfar
 
 ### Geography
 
